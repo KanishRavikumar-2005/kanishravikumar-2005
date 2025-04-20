@@ -4,9 +4,7 @@
   
 - I am Co-Founder and Chief Technology Officer [Mt. Blue Properties](https://mtbproperties.co.in)  
   
-- My Biggest Passion is **To make developer software and Security Software**  
-  
-- I am Co-Founder and Chief Executive Officer [TheCrashersTeam](https://thecrashers.co.in)  
+- My Biggest Passion is **To make developer software and Security Software**   
   
 - My Bento Profile [https://bento.me/kanish-r](https://bento.me/kanish-r)  
   
